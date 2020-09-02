@@ -32,4 +32,4 @@ After getting the information they wanted of my sister,I was sent back to the do
 Dokbi: Unknown creatures that follow select humans and hold "live streams" for gamemasters
 Gamemasters: Beings similar to gods that can choose to give those select humans their traits
 
-Little history lesson:
+Little history lesson:The same time that humans started 
