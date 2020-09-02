@@ -1,1 +1,4 @@
 # Chapter 1
+## Is Life Really Worth Living
+"Hah...here we go again." I sigh as I roll my eyes back.Another day,another problem.I swear...the world must have a vandetta against me,did I wrong them in my last life or something.While having internal monologue,I turn to my prised possession and also my addiction I suppose-my beloved mobile phone,I enter my phone and scrolled to my favourite mindless entertainment-TikTok.Were these short 15 second clips rotting my brain?Yes.But did I always continue?Yes.I live by my motto:if you can't fix the problem,run away from it.Did I have homework and a test to study for? Oviously but when did I ever care.I continued this behaviour for hours on end,only ever stopping for the occasional snack.
+The moment I hear my parents' car at the porch,it was almost as if I could 
