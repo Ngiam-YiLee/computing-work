@@ -38,3 +38,4 @@ As expected,the gamemasters hate my sister.There really is no reason,I suppose t
 
 As I continue to ignore that loud chattering box of a dokbi,I notice the monitors of my sister flashing red and then suddenly,everything went into silence.It was like everything had stopped,time wasn't moving,oxygen seemed to disappear and a blackout happened.When everything seemed to come back to normal,only mere seconds passed but it felt like I was stuck there for an eternity.The monitors showing my sister's power levels were increasing and decreasing at dangerously high rates and her emotions fluctuated like one of a mental patient,if she wasn't stopped soon,her body would not be able to withstand the toil its taking and would just completely shut down.
 
+Using the GPS tracker on my sister,I rushed to her location-the school hall.
