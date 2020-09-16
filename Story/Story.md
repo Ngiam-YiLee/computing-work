@@ -44,4 +44,6 @@ I brought her to my lab located under the school and started examining her,I tri
 
 # Capter 5
 ## The Consequences
-To say the least,the government is not hoing to be happy with this development and I'm not going to be happy of all the overtime I need to do to make up for this.
+To say the least,the government is not hoing to be happy with this development and I'm not going to be happy of all the overtime I need to do to make up for this.After informing the government, I continued monitoring my sister's condition but now that she's out of commision, we need to find a temporary replacement.Though I dislike the government's way of dealing with admission to the capital, I have no choice, we have to hold The Delecton.
+
+Despite how comfortable I am with the current state of Earth, majority of Earth's population begs to differ.While I was priveledged enough to be born in the capital, those living behind the gates of the capital live life not knowing if they can survive till the next day.
