@@ -44,6 +44,9 @@ I brought her to my lab located under the school and started examining her,I tri
 
 # Capter 5
 ## The Consequences
-To say the least,the government is not hoing to be happy with this development and I'm not going to be happy of all the overtime I need to do to make up for this.After informing the government, I continued monitoring my sister's condition but now that she's out of commision, we need to find a temporary replacement.Though I dislike the government's way of dealing with admission to the capital, I have no choice, we have to hold The Delecton.
+To say the least,the government is not hoing to be happy with this development and I'm not going to be happy of all the overtime I need to do to make up for this.After informing the government, I continued monitoring my sister's condition but now that she's out of commision, we need to find a temporary replacement.Though I dislike the government's way of dealing with admission to the Capital, I have no choice, we have to hold The Delecton.
 
-Despite how comfortable I am with the current state of Earth, majority of Earth's population begs to differ.While I was priveledged enough to be born in the capital, those living behind the gates of the capital live life not knowing if they can survive till the next day.
+Despite how comfortable I am with the current state of Earth, majority of Earth's population begs to differ.While I was priviledged enough to be born in the capital, those living behind the gates of the Capital live life not knowing if they can survive till the next day. Despite the deal made between the humans and gamemasters, rouge creautures continue to live outside of the Capital and are able to freely feed on humans or whatever they want as long as they do not enter the Capital. The last time the Delecton was held was 50 years ago and the bloodshed continues to haunt those who witnessed it. 
+
+The Delecton: A government hosted tournament that aims to find new talents. It is a fight to the death and there can only be one victor. Anyone can witness the games and it is renowned as a form of entertainment for nobles.
+
